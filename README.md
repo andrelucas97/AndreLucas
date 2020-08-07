@@ -9,4 +9,4 @@ E tenho um foco na area de programação, em particular em games :facepunch::spa
 
 :bookmark_tabs: Tenho breve conhecimentos em tecnologia, como Python e SQL Server, maior facilidade na area de exatas e buscando maiores conhecimentos na area de programação! :bookmark_tabs:
 
-:speech_balloon: Meus contatos: andre.lucas97@outlook.com Linkedin: https://www.linkedin.com/in/andr%C3%A9-lucas-fabbris-de-toledo-390486173/ :speech_balloon:
+:speech_balloon: Meus contatos: andre.lucas97@outlook.com Linkedin: https://www.linkedin.com/in/andre-lucas-fabbris/ :speech_balloon:
